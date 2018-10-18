@@ -13,7 +13,10 @@ Posts
 
 3- Different types of beef cattle  
 
-4- Cattle Health
+4- Cattle Health and upbringing and quality of life 
+
+
+How much meat a beef cow produces. How many would you need in a herd to make a profit. Do brown cows make chocolate milk?How much do they cost/how do you price them? 
 
 
 
